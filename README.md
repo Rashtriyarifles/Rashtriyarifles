@@ -1,5 +1,12 @@
 ## Hi there 👋
+Hey, I'm Abhijeet 
 
+If you're into building new innovative products, product management and analytics. You're at the right place. 
+Currently working in the Market Intelligence team @ Monotype. Previously worked as Business Analyst(Intern) @ Confederation of Indian Industries (CII) 
+
+If you have something interesting or new ideas - reach out to me - rashtriyaarifle@gmail.com 
+
+You can also find me - probably near the oceans cafes, in the ocean or probably on top of some mountain. Cheers Mate.
 <!--
 **Rashtriyarifles/Rashtriyarifles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
