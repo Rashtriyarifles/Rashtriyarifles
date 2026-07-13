@@ -7,7 +7,7 @@ Currently working in the Market Intelligence team @ Monotype. Previously worked 
 
 If you have something interesting or new ideas - reach out to me - abhijeetsinghtomer@gmail.com or rashtriyaarifle@gmail.com 
 
-You can also find me - probably near the oceans cafes, in the ocean or probably on top of some mountain.
+You can also find me - probably near the oceans cafes, surfing/swimming in the ocean or probably on top of some mountain.
 Cheers Mate.
 <!--
 **Rashtriyarifles/Rashtriyarifles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
